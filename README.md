@@ -1,1 +1,1 @@
-# Super-App-Framework-For-Multi-Application-OneGenius-
+# Super-App-Framework-For-Multi-Application-OneGenius
